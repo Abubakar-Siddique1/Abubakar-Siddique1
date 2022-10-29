@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning C language
 - 💞️ I’m looking to collaborate on both programming language
-- 📫 How to reach me via @email ma2308487@gmail.com
+I'm new in this field please help me & guide me if you feel to free 
 - Thanks
 <!---
 Abubakar-Siddique1/Abubakar-Siddique1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
